@@ -1,1 +1,1 @@
-Once upon a time ther was a fox. One day the fox was feeling very hungry
+Once upon a time ther was a fox. One day it was feeling very hungry so it decided to search for some grapes. It found a tree with some grapes on it. 
